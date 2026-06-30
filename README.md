@@ -1,5 +1,5 @@
 #  𓍢 🪻  ׅ   ⬞   ִ  any pronouns
-.     𓂃 ଓ ISFJ ۪   ݁   𓈒  ݁  ִ <3
+.     𓂃 ଓ ISFJ ۪   ݁ 18- 𓈒  ݁  ִ <3
 𓍢ִ໋ zel/zelar/sam .
 
 < C*H enc and please INT with me pls pls pls pls pls I do not bite (⁠ ⁠；⁠∀⁠；⁠)
